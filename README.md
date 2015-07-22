@@ -11,3 +11,10 @@ pretty cool
 trying branches
 
 seems easy and useful
+
+
+turns out i messed up
+
+btanches didn't went so good at the first time
+
+round two!!!
